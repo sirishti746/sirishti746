@@ -55,8 +55,7 @@
 ### 📬 Let’s Connect
 
 - 📧 Email: **sirishtis12@gmail.com**
-- 🔗 [LinkedIn](https://www.linkedin.com/in/sirishti-singh/
-- 
+- 🔗https://www.linkedin.com/in/sirishti-singh/
 
 ---
 
